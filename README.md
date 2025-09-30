@@ -66,7 +66,7 @@ Taif University – GPA: 3.59 / 4.00 – Second Class Honors
 - Email: **shumoukh88@gmail.com**  
 - Phone: **0501889546**  
 - GitHub: [ShumukhAlazwari](https://github.com/ShumukhAlazwari)  
-- LinkedIn: *(www.linkedin.com/in/shumoukhit)*  
+- LinkedIn: *(www.linkedin.com/in/shumukhit)*  
 
 
 ---
